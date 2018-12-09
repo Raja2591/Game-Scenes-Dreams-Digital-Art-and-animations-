@@ -30,9 +30,9 @@ Here are some imaginative photos that I have created.
 
 ![](spiderman.jpg)
 
-6. We need to reject the hatred/jealousy/ego/selfishness within us and become a better person.
+6. We need to reject the hatred/jealousy/ego/selfishness within us and become a better person. The link to this pic https://www.instagram.com/p/Bjd0np6nh35/
 
-![]
+![](split%20head1.jpg)
 
 
 
