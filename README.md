@@ -22,9 +22,7 @@ Here are some imaginative photos that I have created.
 
 ![](werewolf2.jpg)
 
-4. Each one of us has a bad side and a good side. We need to reject the bad and embrace the good.
 
-![](split%20head.jpg)
 
 
 
