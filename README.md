@@ -1,6 +1,6 @@
 # Game-Scenes-Dreams-Digital-Art-and-animations-
 
-Here are links to some of my animations and cinemagraphs that I have done. 
+Here are links to some of my animations and cinemagraphs.
 
 https://www.instagram.com/p/BoTOmnhnaKt/
 
