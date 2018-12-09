@@ -22,13 +22,16 @@ Here are some imaginative photos that I have created.
 
 ![](werewolf2.jpg)
 
-4. This is a spooky scene from a Philadelphia subway station.
+4. This is a spooky scene from a Philadelphia subway station. The link to this pic https://www.instagram.com/p/BiaC6GQhflT/
 
 ![](woman%20subway.jpg)
 
 5. Spotted spiderman in New York City
 
 ![](spiderman.jpg)
+
+6. We need to reject the hatred/jealousy/ego/selfishness within us and become a better person.
+
 
 
 
