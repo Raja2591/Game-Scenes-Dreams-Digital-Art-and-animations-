@@ -32,6 +32,8 @@ Here are some imaginative photos that I have created.
 
 6. We need to reject the hatred/jealousy/ego/selfishness within us and become a better person.
 
+![]
+
 
 
 
