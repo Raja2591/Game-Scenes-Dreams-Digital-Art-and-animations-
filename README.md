@@ -8,7 +8,7 @@ https://www.instagram.com/p/BoXeaiSnMOm/
 
 https://www.instagram.com/p/BoOIquKnLpa/
 
-Here are some imaginative photos that I have created. 
+Here are some of my creative photos. 
 
 1. After years of hardwork when I finally understood Quantum Mechanics, it got me into a dual state. :-D Did not upload this on instagram
 
